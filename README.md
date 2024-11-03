@@ -16,7 +16,7 @@
 
 *"Well, it's just not that great, is it? I wouldn't mind looking at the house again..."*
 
-*"And... Maybe, looking at you."*
+*"And, maybe, looking at you."*
 
 "Really? You like looking at me?"
 
